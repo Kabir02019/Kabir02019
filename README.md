@@ -16,4 +16,4 @@
 
 🤝 If my journey and expertise resonate with you, don't hesitate to reach out! Let's connect, interact, and work together to build the next big thing in the world of technology 🌍.
 
-![Visitors](https://visitor-badge.glitch.me/badge?page_id=Kabir02019.Kabir02019)
+
